@@ -10,4 +10,3 @@
 - 💬 Ask me about: Anything
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/kuria-thuku)
 - ⚡ Fun fact: I am a cat persom
--->
